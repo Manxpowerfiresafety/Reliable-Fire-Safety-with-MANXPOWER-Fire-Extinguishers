@@ -22,3 +22,15 @@ MANXPOWER delivers high-performance fire extinguishers at competitive pricing, m
 With a strong distribution network and responsive customer support, MANXPOWER ensures timely service, maintenance guidance, and replacement solutions.<br>
 <h3>Secure Your Safety with MANXPOWER</h3>
 From the compact 500gm ABC fire extinguisher to heavy-duty CO₂ and AFFF foam units, MANXPOWER is your reliable partner in fire prevention and control. With innovative products like the fire extinguisher ball and fire blanket, MANXPOWER continues to redefine safety and trust in the fire protection industry. Choose MANXPOWER—where your safety is our priority.<br>
+<h3>Get in touch with us:</h3>
+<b>Visit: https://manximpex.com/fire-extinguisher-2/ </b><br>
+<b>E-mail: info@manximpex.com </b><br>
+<b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
+<b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/manximpex/ </b><br>
+<b>Facebook: https://www.facebook.com/manximpex/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/manx-impex </b><br>
+<b>Youtube: https://www.youtube.com/c/ManxImpex  </b><br>
+<h3>Read our blog:</h3>
+<b>How to Properly Maintain and Inspect Fire Extinguishers: https://manximpex.com/maintain-inspect-fire-extinguishers/</b>
